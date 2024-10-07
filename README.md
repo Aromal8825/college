@@ -1,1 +1,1 @@
-# collage
+# college
